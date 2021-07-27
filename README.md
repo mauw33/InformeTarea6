@@ -46,7 +46,7 @@ Resolución del capitulo 12 (ejercicios pares)
 
 4. VIDEO
 
-
+https://youtu.be/4SZ67fN5CtI
 
 5. CONCLUSIONES
 
